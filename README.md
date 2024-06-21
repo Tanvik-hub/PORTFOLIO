@@ -9,3 +9,4 @@
 - Skills
 - Contact Me
  
+-you can contact me at tanvikreddy24@gmail.com
